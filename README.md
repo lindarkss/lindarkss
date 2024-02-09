@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lindarkss
 - 👀 I’m interested in sausausage dogs.
-- 🌱 I’m learning how to get another sausausage dog without my boyfiends permission in the future
+- 🌱 I’m learning how to get another sausausage dog without my boyfriends permission in the future
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: you can not.
 
